@@ -1,1 +1,1 @@
-All of music of all version。
+All of music of all version.
